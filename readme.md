@@ -65,4 +65,4 @@ Click the summarize icon.
 Instantly get a summarized version of the content.
 
 📫 Contact
-For suggestions or collaboration: gaganh.official@gmail.com
+For suggestions or collaboration: faisalmohammedd2003@gmail.com
